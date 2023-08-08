@@ -1,2 +1,2 @@
-if you want to know anything in english feel free to dm me on discord: ggauzinbruh
+if you want to know anything about this repo in english feel free to dm me on discord: ggauzinbruh
 or telegram: @ggauzin
